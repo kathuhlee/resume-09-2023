@@ -1,6 +1,6 @@
 # Kathleen N. Wong
 
-[Email](mailto:wongkathleen@berkeley.edu) | [LinkedIn](https://www.linkedin.com/in/kathleen-wong-76374489) | [Portfolio](https://www.kathuhlee.github.io/) | San Francisco Bay Area, CA
+[Email](mailto:wongkathleen@berkeley.edu) | [LinkedIn](https://www.linkedin.com/in/kathleen-wong-76374489) | [Portfolio](https://kathuhlee.github.io/) | San Francisco Bay Area, CA
 
 ## CAREER PROFILE
 
